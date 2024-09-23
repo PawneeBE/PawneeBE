@@ -1,0 +1,1 @@
+🇧🇪 • Hi, I’m Pawnee! Proud to be a Belgian patriot, I have a deep love for my country. 📸 A photography enthusiast, I enjoy capturing beautiful landscapes and special moments. 🥾 As a hiking lover, I thrive on outdoor adventures. Soon to be a soldier in the Belgian army, I’m ready for the challenges that lie ahead.
